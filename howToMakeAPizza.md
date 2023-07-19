@@ -16,13 +16,31 @@ Picar los tomates y saltear el ajo y la cebolla.
 Agregar los tomates, sal, azúcar y especias.
 
 Cocinar a fuego lento hasta obtener una salsa espesa.
-Pizza de Queso:
+
+3. Preparar los ingredientes:
+
+Reunir los ingredientes deseados, en este caso, queso mozzarella.
+
+Cortar el queso mozzarella en rodajas o rallarlo.
+
+4. Precalentar el horno:
+
+Ajustar el horno a una temperatura alta, generalmente entre 220-250°C.
+
+Estirar la masa:
+
+Colocar la masa sobre una superficie enharinada.
 
 5. Agregar la salsa y los ingredientes:
+
 Extender la salsa de tomate sobre la masa dejando un borde libre.
+
 Espolvorear el queso mozzarella sobre la salsa.
+
 6. Hornear la pizza:
+
 Colocar la pizza en una bandeja o piedra de pizza precalentada.
+
 Hornear durante 10-15 minutos hasta hasta que la masa este dorada y el queso este derretido.
 
 7. Terminar y servir:
